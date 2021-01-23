@@ -16,7 +16,7 @@ All'epoca l'unico ente di divulgazione filosofica si avvaleva di un altro social
  _Camerati Italiani_ ed alcune reclute selezionate tramite appositi quesiti di accesso.
 
 La pagina divulgativa presente su _Instagram_ raggiunse **600 seguaci** nel **2019**. Purtroppo, a causa di un post in cui vennero rivolti gli auguri a **Benito Mussolini** 
-in occasione del suo **centrotrentaseiesimo compleanno**, la pagina fu **segnalata in massa ed eliminata**.
+in occasione del suo **centotrentaseiesimo compleanno**, la pagina fu **segnalata in massa ed eliminata**.
 Verrà in seguito riaperta il **primo maggio** e raggiungerà i 400 seguaci nel **novembre 2020**.
 
 ## _La rinascita_
