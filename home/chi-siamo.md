@@ -9,7 +9,7 @@ permalink: /home/chi-siamo
 # Le menti dietro ANR
 
 ## _La fondazione dalle ceneri_
-_ANR_  nasce nel **2017**, dalle ceneri di _Camerati Italiani_, gruppo ospitato sulla piattaforma di messaggistica istantanea *WhatsApp*, fondato da **ΑΛΈΞΑΝΔΡΟΣ** e **LuxTenebrae **.
+_ANR_  nasce nel **2017**, dalle ceneri di _Camerati Italiani_, gruppo ospitato sulla piattaforma di messaggistica istantanea *WhatsApp*, fondato da **ΑΛΈΞΑΝΔΡΟΣ** e **LuxTenebrae**.
 
 _ANR_ era a tutti gli effetti il successore del sopracitato gruppo, infatti anch'esso - almeno inizialmente - svolse la funzione di **circolo culturale** appoggiandosi come il suo precedessore a *WhatsApp*.
 All'epoca l'unico ente di divulgazione filosofica si avvaleva di un altro social, ovvero *Instagram*. Nell'arco di un mese, il gruppo vide entrare 40 partecipanti reduci di _Brigata Nazionale_,
