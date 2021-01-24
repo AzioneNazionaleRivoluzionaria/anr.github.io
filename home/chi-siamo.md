@@ -64,4 +64,4 @@ Lunga vita ad Azione Nazionale Rivoluzionaria!
 ## _Il salto di qualità_
 
 Dopo un'organizzazione di pubblicazioni e scrittura interamente basata su Telegram e sul suo sito adibito alla scrittura - Telegraph - il **23 gennaio del 2021** 
-verrà aperto questo sito da un'idea di **TuxInside18** con l'intento di portale il canale divulgativo all'attenzione del grande pubblico.
+verrà aperto questo sito da un'idea di **TuxInside18** con l'intento di portare il canale divulgativo all'attenzione del grande pubblico.
