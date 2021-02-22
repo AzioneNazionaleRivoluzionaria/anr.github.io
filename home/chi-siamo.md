@@ -46,7 +46,7 @@ più consono alle trattazioni dell'ente divulgativo.
 
 _Logo originale di ANR fino a novembre 2020_
 
-![alt text](https://github.com/divulgazione-ANR/divulgazione-anr.github.io/blob/gh-pages/foto/ANR.png?raw=true)
+![alt text](https://github.com/divulgazione-ANR/divulgazione-anr.github.io/blob/gh-pages/foto/ANR.jpg?raw=true)
 
 _Logo attuale_
 
