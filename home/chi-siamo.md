@@ -34,8 +34,7 @@ dei più stretti collaboratori di ΑΛΈΞΑΝΔΡΟΣ, rispettivamente **Luce d
 Luce del Nord esordirà con un articolo intitolato _Osward Spengler, il tramonto dell'occidente_ mentre TuxInside18 portando un articolo trattante 
 il Neofascismo intitolato _Neofascismo e Borghesia_.
 
-La redazione ormai era completa, solo in seguito verrà aperta ad un altro collaboratore il quale si ritirerà dopo nemmeno un giorno
-senza pubblicare un articolo.
+Il **20 febbraio 2021** entra a far parte della redazione **nealac23**.
 
 ## _Il cambio di logo_ 
 
